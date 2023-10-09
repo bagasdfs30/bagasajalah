@@ -1,0 +1,2 @@
+# bagasajalah
+blog pribadi
